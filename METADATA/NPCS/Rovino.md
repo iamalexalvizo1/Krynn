@@ -1,0 +1,2 @@
+- high wizard?
+- works with king of kalaman? or some high ruler
