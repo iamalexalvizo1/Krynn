@@ -12,13 +12,16 @@ tags: []
 ## Session 2 Summary
 ![[battle.png| 500]]
 
+>[!notes] Youtube Video
+>Find a recording of the session [here](https://www.youtube.com/watch?v=pxf6UsXRPbA).
+>
 ### In the Midst of Battle
 
 We open the scene with blood and bodies everywhere. In our case, we are engaged by 3 mercenaries. 
 
 We easily defeat these mercenaries, although their war horses prove to be worthy adversaries! Eventually, [[Gragonis]], a huge guy with a devastatingly huge battle axe joins the battle with a small group of his own mercenaries. 
 
->[!info] Injured Memeber Joins the Fight
+>[!info] Injured Member Joins the Fight
 >At some point, there is an injured member of the Vogler militia that cuts in, trying to escape one of the mercenaries, which we end up saving!
 
 As the battle grows, the mercenaries quickly realize that some of us are in fact strong. Although [[Weisslogia]] is careful to not use any dragon specific skills, his brute strength is noticed by [[Gragonis]] as he blocks heavy hits and lands his own punishingly strong attacks. 
@@ -26,7 +29,7 @@ As the battle grows, the mercenaries quickly realize that some of us are in fact
 >[!error] Magic Shenanigans
 >Something to note is that a few of us used magic...which is very very out of the ordinary in this land. 
 
-Eventually, the battle ends, with victory on our side. There were no mercenary survivors (on this battle field at least).
+Eventually, the battle ends, with victory on our side. There were no mercenary survivors (on this battlefield at least).
 
 >[!warning] Level Up!
 >We are now level 3!
