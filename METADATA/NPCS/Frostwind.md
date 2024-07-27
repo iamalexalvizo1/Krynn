@@ -1,0 +1,4 @@
+- tinkerer
+- weird character
+- bird like, maybe a crow
+- 
