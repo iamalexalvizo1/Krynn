@@ -18,6 +18,10 @@ tags:
 
 ![[krynn-default.jpg | 300]]
 
+>[!notes] Youtube Video
+>Find a recording of the session [here](https://www.youtube.com/watch?v=LaT7oeLbxYI).
+>
+
 ### Planning for an Ambush
 
 As soon as we took notice of the 4 soldiers, we knew it meant trouble; if we didn't do anything now, we might not give our towns people enough time to evacuate. 
