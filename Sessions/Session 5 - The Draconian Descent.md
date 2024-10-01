@@ -17,6 +17,27 @@ tags:
 
 ## Session Summary
 
+### Evacuation Underway
+
+The town is loud with all of the movement going on with getting ready to leave, packing, prepping boats, etc. [[Vogler]] is boarding people now and most of us are helping in any way we can. 
+
+>[!info] Lending a helping Hand
+>Grumm helps out a family and gives the kid, Javi, a doll.
+
+As all of this is going on, the hooded figures finally descent into the town...
+
+### A series of battles
+
+At this point, it is simply battle after battle- we are trying to fend of the hooden figures, help the military, evacuate the citizens, etc. 
+
+A couple of things to note - 
+1. One of the hooded figures says something in "draconian" to [[Weisslogia]]... but [[Weisslogia]] couldn't quite make out the language exactly. Seemed to be a variation/dialect on true draconian. 
+2. [[Elerion Windwalker]] keeps seeing images/visions when throwing wood into a fire.
+
+After multiple battles in which a couple of us almost fell... we are finally attempting to make it back to one of the ships before the rest of the army or worse....catches up to us. 
+
+P.S. Took this many sessions for Grumm to realize he was playing with a pretty big handicap...
+
 ## Log
 
 ** thing to fix - becklin dies, not raven
