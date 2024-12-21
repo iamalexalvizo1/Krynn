@@ -24,6 +24,8 @@ As we are making out way to the boat [[Jeyev]] makes his way over as well out of
 
 As we are loading into the boats...a huge red dragon flies over us and grabs [[Raven Uth Volger]] and throws him somewhere deep into the burning town. We also notice someone in black armor with flames in her left eye riding the dragon. After saying something... the dragon flies off. 
 
+> Tell Kalaman that the dragon queen and her greatest servant, Kansaldi Fire Eyes, sends their regards! Her flames will find them soon!
+
 We eventually make it onto the boats and start riding down the river, which should lead us straight to [[Kalaman]], within a few hours. [[Jeyev]] gives a helmet to Darren on Becklins behalf. 
 
 We all doze in and out while riding down the river. As we get closer to [[Kalaman]], we start asking [[Xidon]] some questions about how [[Kalaman]] is. 
