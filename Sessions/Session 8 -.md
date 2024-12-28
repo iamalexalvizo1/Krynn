@@ -17,6 +17,39 @@ tags:
 
 ## Session Summary
 
+### A Memory 
+We find ourselves in the great library of Kalaman - Xidon seems to be going through old research and manuscripts...
+
+> chromatic dragons...dragon army coming back
+
+He comes across the symbol of Takhisis, the 5 headed dragon symbol. His master, [[Rhegar Targaryen]], and Xidon talk about the dragons coming back...
+
+P.S. Xidon's real name is Peter Dinklish
+
+### Back to the Present
+
+After docking, a few of us start to make our way to the castle, following Xidon's lead to report and ask for help regarding the dragon army we encountered. 
+
+> [!info] Weisslogia Helps out
+> There was a small boat that wasn't making its way to shore...so we helped it along by providing a paddle
+
+There are now dozens of homeless Volgerians...which we will also speak about when meeting Xidon's contacts in the castle. They start a fire and starting to warm up and look at the direction of Vogler...
+
+### At the Castle
+
+When we arrive at the castle, we noticed that Lord Bakaris is already here...we let them know of what we saw and experience but for some reason, the governor seems to be skeptical of the situation (perhaps something Lord Bakaris is up to). 
+
+Weisslogia decides to open up to Xidon about who he really is and his past. 
+
+> [! warning] Weisslogia Opens up to Xidon
+> Pretty crucial moment as Xidon is now aware that Weisslogia is no elf but a dragonborne! He also knows that his father leads a dragon army, which also killed his mother and others that opposed the violence. 
+> The shield also seems to be something past down from the golden dragon...
+
+Xidon wisely tells Weisslogia to keep that knowledge between them for the time being. Xidon also reveals his parents died in battle in the city. 
+
+We are asked by the governor if we are interested in joining a special operations team to help him with something...and in return, we might get some help from him. 
+
+
 ## Log
 
 - we find out selves in a library in [[Kalaman]]
