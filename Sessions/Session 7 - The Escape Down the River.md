@@ -18,6 +18,9 @@ tags:
 
 ## Session Summary
 
+> [!info] Youtube Recording
+> Session 7 video [here](https://www.youtube.com/watch?v=ZKryDan9M94&list=PLCfCvyWIxeARkZRANjeLqvPPu1b1ssyEc&index=3). 
+
 After the last few battles, everything around is set ablaze...the fire is reaching the docks, corpses of draconian scatter the village. [[Raven Uth Volger]] is preparing the last couple of boats and yells out for us to get in the boat. 
 
 As we are making out way to the boat [[Jeyev]] makes his way over as well out of no where and we all start settling into the boat - though [[Grumm Stonebreaker]] falls. 

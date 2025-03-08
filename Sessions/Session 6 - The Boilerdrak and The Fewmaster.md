@@ -17,6 +17,11 @@ tags:
 
 
 ## Session Summary
+
+> [!info] Youtube Recording
+> Session 7 video [here](https://www.youtube.com/watch?v=abrEls8BV9c). 
+
+
 As we make our way closer to the docks. Suddenly, the group hears screams from up ahead. Fire and smoke is everywhere when suddenly people are heard screaming “DRAGON!!!”. A black creature is seen with smoke coming from its mouth and crackling flames. With the dragon, a group of Draconians.
 
 The group begins to fight against the dragon and Draconians. Towards the middle of the fight, [[Elerion Windwalker]] and [[Silvanas]] recognize that the dragon is not a real dragon, but a mechanical dragon operated by two Draconians. They all appear to be led by a Bozak draconian. 

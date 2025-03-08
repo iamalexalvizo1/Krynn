@@ -17,6 +17,9 @@ tags:
 
 ## Session Summary
 
+> [!info] Youtube Recording
+> Video [here](https://www.youtube.com/watch?v=bfjR0PykBek).
+
 ### Evacuation Underway
 
 The town is loud with all of the movement going on with getting ready to leave, packing, prepping boats, etc. [[Vogler]] is boarding people now and most of us are helping in any way we can. 

@@ -17,6 +17,9 @@ tags:
 
 ![[04-004.tatina-defense.png]]
 
+> [!info] Youtube Recording
+> Session 9 recording [here](https://www.youtube.com/watch?v=G5u2BcsN_uQ&list=PLCfCvyWIxeARkZRANjeLqvPPu1b1ssyEc&index=2). 
+
 ### In comes Kael
 
 In a dimly lit chamber of the castle, we find ourselves once again in the region of Kalaman, where a new face shows up - [[Kael]]. This elf is speaking with the governor about a problem the governor would like help with. Just south of the city, there is a brilliant gnome - [[Tatiana Rookledust]]; it seems her creations are being weaponized by the red dragon army and the governor wants to know if she is involved in treason somehow and if not, for her to join the forces against the red dragon army.

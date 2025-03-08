@@ -17,6 +17,9 @@ tags:
 
 ## Session Summary
 
+> [!info] Youtube Recording
+> Session 8 video [here](https://www.youtube.com/watch?v=tYI3HIQ9KvM&list=PLCfCvyWIxeARkZRANjeLqvPPu1b1ssyEc&index=3). 
+
 ### A Memory 
 We find ourselves in the great library of Kalaman - Xidon seems to be going through old research and manuscripts...
 
