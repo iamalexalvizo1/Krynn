@@ -11,7 +11,7 @@ characters:
 tags:
 ---
 ## Recap from the Previous Session
-![[Session 9#Session Summary]]
+![[Session 9 - New Faces#Session Summary]]
 
 ## Session Summary
 

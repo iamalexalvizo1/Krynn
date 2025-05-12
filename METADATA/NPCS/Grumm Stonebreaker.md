@@ -15,3 +15,4 @@ Player: "Marcos"
 Place of Interest is [[Madame Mystique's Lost World]]
 
 - has amulet
+- dumb

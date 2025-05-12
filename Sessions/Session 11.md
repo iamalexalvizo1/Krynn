@@ -11,7 +11,7 @@ characters:
 tags:
 ---
 ## Recap from the Previous Session
-![[Session 10#Session Summary]]
+![[Session 10 - Undead Soliders?#Session Summary]]
 
 ## Session Summary
 
